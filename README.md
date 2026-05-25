@@ -1,4 +1,6 @@
-## Hi there 👋
+<p align="center">
+<img src="https://github.com/leafdere/leafdere/blob/4ee7c196c3a0a34b143a77c24401ccd1a15d37a1/Untitled1419_20260525054127.png"/>
+</p>
 
 <!--
 **leafdere/leafdere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
