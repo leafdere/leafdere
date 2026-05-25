@@ -13,7 +13,7 @@ collect my pages.
 <p align="center">
   https://bunnzan.straw.page/
 <p align="center">
-   https://daisygroover.straw.page/
+   https://whatinthewhat.straw.page/
 
 
 
