@@ -11,9 +11,9 @@
 <p align="center">
 collect my pages. 
 <p align="center">
-https://daisygroover.straw.page
+https://guns.lol/daisygroove
 <p align="center">
-   https://whatinthewhat.straw.page/
+   https://daisygroover.straw.page
 
 
 
