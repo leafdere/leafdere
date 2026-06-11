@@ -11,7 +11,7 @@
 <p align="center">
 collect my pages. 
 <p align="center">
-https://guns.lol/parasitismduo
+https://guns.lol/helplessduo
 <p align="center">
    https://bunnzan.straw.page
   
