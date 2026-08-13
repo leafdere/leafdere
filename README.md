@@ -13,7 +13,7 @@ collect my pages.
 <p align="center">
 https://guns.lol/helplessduo
 <p align="center">
-   https://bunnzan.straw.page
+   https://bunzann.straw.page
   
 <p align="center">
 <img src="https://github.com/leafdere/leafdere/blob/a0e77a20d036f3f04d8c1c7b76276c8dbb108703/New%20Project%2038%20%5B47F6BBA%5D.gif"/>
