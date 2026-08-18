@@ -9,11 +9,13 @@
 <p align="center">
  hlelo 
 <p align="center">
-more infos: i block freely nd yh u can block me too idgaf. pls have common sense when interacting w/ me & dni if u're 30+ 
+i block freely idgaf. pls have common sense when interacting w/ me & i am bery selective so yeah. 
 <p align="center">
 https://guns.lol/helplessduo
 <p align="center">
    https://bunzann.straw.page
+<p align="center">
+   https://havocking.straw.page
   
 <p align="center">
 <img src="https://github.com/leafdere/leafdere/blob/a0e77a20d036f3f04d8c1c7b76276c8dbb108703/New%20Project%2038%20%5B47F6BBA%5D.gif"/>
