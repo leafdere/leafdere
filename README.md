@@ -7,9 +7,9 @@
   ‎ ‎ 
   ‎ ‎ 
 <p align="center">
- hlelo ( ´ ▽ ` )ﾉ
+ hlelo 
 <p align="center">
-collect my pages. 
+more infos: i block freely nd yh u can block me too idgaf. pls have common sense when interacting w/ me & dni if u're 30+ 
 <p align="center">
 https://guns.lol/helplessduo
 <p align="center">
