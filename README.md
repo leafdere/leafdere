@@ -10,6 +10,8 @@
  hlelo 
 <p align="center">
 i block freely idgaf. pls have common sense when interacting w/ me & i am bery selective so yeah. 
+  <p align="center">
+    i get very pushy and emotional easily so iwec thx UNLESS AEL OR IRLS! :D
 <p align="center">
 https://guns.lol/helplessduo
 <p align="center">
